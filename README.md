@@ -1,5 +1,5 @@
-### Hi there 👋
-
+### Hi I'm Phutthiphong Sae-lu. 👋
+# I stuby at Kmutt.
 <!--
 **Gamchu/Gamchu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
